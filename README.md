@@ -6,4 +6,4 @@ LEAKED BY KEMONO IN ENIGMA SOLUTIONS DISCORD
 ALL CREDITS TO HIM
 
 # discord
-my discord server - https://discord.gg/ZENeXwMBHE
+my discord server - https://discord.gg/enigmacheats
